@@ -7,13 +7,14 @@
     * 2 Tablespoon fish curry powder
     * 4 tablespoon of water
     * small asam lump
+    * Half teaspoon sugar
 2. Shred or cut onion, garlic and ginger.
-3. Mix the water and asam lump in a small bowl
+3. Mix the water and asam lump in a small bowl.
 4. Put sardin out on a plate, take it in half and remove the bones.
-5. Heat up pan and pour oil
+5. Heat up pan and pour oil.
 6. Put ginger, garlic and onion and sautee until brown.
 7. Add the fish curry powder.
-8. Pour Asam water and stir a bit
+8. Pour Asam water and stir a bit.
 9. Add salt and half teaspoon sugar.
 10. Wait for oil to rise.
 11. Put sardin and stir.

@@ -1,4 +1,4 @@
-Steps to Make Nasi Goreng:
+# Steps to Make Nasi Goreng:
 
 1. For 1 Person rice, take
    * 1 Rose Onion or small Onion

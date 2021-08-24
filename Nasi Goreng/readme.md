@@ -12,5 +12,5 @@
 6. Add the paste once oil is hot enough.
 7. Keep stir-frying until its brownish and keep it at the side of the pan.
 8. Add in 1-2 egg and scramble fry it.
-9. Add in Rice and mix all together until even.
+9. Add in Rice and mix all together until even. Add salt to taste and mix completely.
 10. Serve and eat with fried anchovies.

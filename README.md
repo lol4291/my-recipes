@@ -46,4 +46,32 @@ Steps:
 11.  Once the oil separates, add salt to taste and mix well. Can add additional salt as rice will be added soon.
 12.  add rice and mix well. Make sure the flame is small/low. Let it cook for 5 minutes.
 
+
+# tteokboki
+Need:
+
+    frozen tteokbokki
+    2 tbsp hot chili/pepper paste [gochujang]
+    1.5 tbsp sugar
+    1 tbsp korean chili powder
+    1/8 tbsp salt
+    1 tbsp oyster sauce
+    200ml water
+    mini sausage
+    Green onion
+    cooked noodle [optional]
+    cheese [optional]
+Steps:
+1. Add 2 tbsp of gochujang onto pan.
+2. Add 1.5 tbsp sugar
+3. Add 1 tbsp korean chili powder
+4. Add 1/8 tb salt
+5. Add 1 tbsp oyster sauce
+6. Add 200 ml water
+7. Mix all until dissolved.
+8. Put pan on stove on low heat and bring it to a boil.
+9. Once boiled, add in fish cakes or sausages as well as tteokbokki. Maybe add boiled eggs too.
+10. Cook at medium heat for 5 minutes.
+11. AFter sauce becomes thicker and the rice cake has cooked, add chopped green onion
+
 # mee mihun

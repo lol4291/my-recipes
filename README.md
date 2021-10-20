@@ -12,6 +12,81 @@ Lunch/Dinner
 
 
 To try:
+# Thick Egg Curry
+Need:
+
+    4-6 eggs
+    1-2 potatoes
+    10 shallots
+    10 cloves of garlic
+    1 tbsp fenugreek
+    4 tbsp fish curry powder
+    1 tsp chili powder
+    1 tsp turmeric
+    1/2 cup thick coconut milk
+    3 small green chili
+    2 tbsp asam jawa
+    1 curry leave stem
+    2.5 cup water
+Steps:
+1. Boil egg. Cut the egg slightly to allow curry to seep in.
+2. Cut the shallots and garlic in halves.
+3. Add asam jawa to 0.5 cup of water and mix well. Skim the liquid to remove asam jawa solids.
+4. Add oil and heat the pan.
+5. Add the fenugreek and garlic. Cook 1-2 minutes.
+6. Add shallots and curry leaves. Cook for 3-5 minutes.
+7. Add turmeric, fish curry powder and chilli powder. Mix thoroughly.
+8. Add a bit of water and make it into a paste. Stir fry for 3-5 minutes.
+9. Add 1 cup of water and let it to boil.
+10. Add 2 potatoes cut in even sizes. Add another cup of water. Cook for 15 minutes at medium heat.
+11. Add 1-2 tsp of salt.
+12. Check if potatoes are half cooked. If yes, add eggs into curry and cook for 5 minutes.
+13. Add asam water and cook for another 5 minutes.
+14. Add thick coconut milk and chili [cut in half] as well as 1 tsp of sugar. Let it cook for 20 minutes.
+
+
+# Egg Curry
+Need:
+
+    4-6 eggs
+    1-2 potatoes
+    1 tbsp Mixed [mustard seed, fenugreek and fennel]
+    2 cinnamon
+    2 star anise
+    1 onion
+    10 garlics
+    1 tbsp of pounded ginger
+    fistful of anchovies
+    1 stem of curry leaves
+    1 big green chili
+    1 cup of santan
+    2 tbsp of chili powder
+    3 tbsp of fish curry powder
+    asam jawa water
+    santan
+Steps:
+1. Peel the potatoes.
+2. Cut the onion into slices. Cut garlic into halves.
+3. Take suitable amount of ginger and pound until you have 1 tbsp.
+4. Take one fistful of anchovies and pound it.
+5. heat up pan and add oil.
+6. Add mixed spices and sautee a bit.
+7. Add cinnamon and star anise.
+8. Add onion and garlic and sautee.
+9. Add curry leaves and mix well.
+10. Add green chili and pounded ginger.
+11. Once it smells fragrant, add pounded anchovies.
+12. Add potatoes and mix well.
+13. Add chili and fish curry powder. Mix a bit water.
+14. Add to the pot. LEt it boil for 1-2 minutes.
+15. Add 1 cup of water. Water can be added depending on thickness needed. Mix well.
+16. Once it boils, add in asam jawa water.
+17. Once it boils again, add santan.
+18. Add salt as needed.
+19. Once boiled, add in eggs. boil for 2 minutes.
+20. Check if potatoes are cooked, if yes, curry is done.
+
+
 # Satti Soru
 Need:
 

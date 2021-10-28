@@ -11,6 +11,51 @@ Lunch/Dinner
 
 
 
+
+To try:
+# Thick Egg Curry modded
+Need:
+
+    4-6 eggs
+    1-2 potatoes
+    1 onion
+    10 cloves of garlic
+    1 tbsp mixed fenugreek, msutard seed and fennel
+    2 cinnamon
+    2 star anise
+    fsitful of anchovies
+    4 tbsp fish curry powder
+    1 tsp chili powder
+    1 tsp turmeric
+    1/2 cup thick coconut milk
+    3 small green chili or 1 big chili
+    2 tbsp asam jawa
+    1 curry leave stem
+    2.5 cup water
+Steps:
+1. Boil egg. Cut the egg slightly to allow curry to seep in.
+2. Cut the onion in slices and garlic in halves.
+3. Peel Potatoes.
+4. Pound ginger to get 1 tbsp worth.
+5. Take one fistful anchovies and pound it.
+6. Add asam jawa to 0.5 cup of water and mix well. Skim the liquid to remove asam jawa solids.
+7. Add oil and heat the pan.
+8. Add the spices. Sautee a bit
+9. Add cinamon and star anise. After few secons add onion and garlic. Sautee for few minutes.
+10. Add curry leaves and mix.
+11. Add green chili and punded ginger.
+12. Once fragrant, add ounded anchovies. Fry a bit.
+13. Add salt.
+14. Add potatoes and mix well.
+15. Add powder and mix a bit of water. Stir fry a bit.
+16. Add water and let it boil. Once boil, add asam water.
+17. once boil again, add santan. 
+18. Add salt as needed.
+19. Once potatoes are cooked, add eggs.
+20. Boil for 10 minutes.
+21. take it out
+
+
 To try:
 # Thick Egg Curry
 Need:

@@ -8,8 +8,11 @@ Lunch/Dinner
 2. [Sardin Sambal](https://github.com/lol4291/my-recipes/tree/main/Sardin%20Sambal)
 3. [Bendi Goreng](https://github.com/lol4291/my-recipes/tree/main/Bendi%20Goreng)
 4. [Egg Satti Sorru](https://github.com/lol4291/my-recipes/tree/main/Egg%20Satti%20Sorru)
+5. [Thick Egg Curry]()
 
-
+Snack
+1. [Caramel Popcorn]()
+2. [Sago Pudding]()
 
 
 To try:

@@ -16,8 +16,40 @@ Snack
 
 
 To try:
+# churros bites [another guy]
+Need:
 
-# churros bites
+   ** FOR Churros**
+   
+    0.5 cup milk
+    0.5 cup water
+    3 tbsp butter
+    2 tsp sugar
+    pinch of salt [1-2 tsp]
+    0.5 tsp vanilla extract
+    1 cup flour
+    
+    ** For Chocolate*
+    
+    50g dark chocolate
+    25g sugar
+    120ml milk
+    4g corn starh
+    10ml water
+Steps:
+1. Put pan on stove and turn to medium heat.
+2. Add 0.5 water, 0.5 milk, 3 tbsp butter, 2 tsp of sugar and pinch of salt.
+3. Let butter melt and mixture comes to a boil
+4. Take it off the heat.
+5. Add 0.5 tsp of vanilla extract and 1 cup of flour.
+6. Mixture until thoroughly combined.
+7. Transfer into piping bag.
+8. Put in oil and turn to medium heat.
+9. Cut into medium pieces and let the churros to cook until golden brown [1-2 minutes].
+10. Dip into chocolate and enjoy.
+
+
+# churros bites [nino]
 
 Need:
 

@@ -196,3 +196,38 @@ Steps:
 11. AFter sauce becomes thicker and the rice cake has cooked, add chopped green onion
 
 # mee mihun
+
+# Caramel Pudding
+
+Need:
+    frozen tteokbokki
+    2 tbsp hot chili/pepper paste [gochujang]
+    1.5 tbsp sugar
+    1 tbsp korean chili powder
+    1/8 tbsp salt
+    1 tbsp oyster sauce
+    200ml water
+    mini sausage
+    Green onion
+    cooked noodle [optional]
+    cheese [optional]
+Steps:
+1. Add 2 tbsp of gochujang onto pan.
+
+
+# Sago Pudding
+
+Need:
+    frozen tteokbokki
+    2 tbsp hot chili/pepper paste [gochujang]
+    1.5 tbsp sugar
+    1 tbsp korean chili powder
+    1/8 tbsp salt
+    1 tbsp oyster sauce
+    200ml water
+    mini sausage
+    Green onion
+    cooked noodle [optional]
+    cheese [optional]
+Steps:
+1. Add 2 tbsp of gochujang onto pan.

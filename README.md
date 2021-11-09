@@ -200,22 +200,29 @@ Steps:
 
 # mee mihun
 
-# Caramel Pudding
+# Caramel Popcorn
 
 Need:
-    frozen tteokbokki
-    2 tbsp hot chili/pepper paste [gochujang]
-    1.5 tbsp sugar
-    1 tbsp korean chili powder
-    1/8 tbsp salt
-    1 tbsp oyster sauce
-    200ml water
-    mini sausage
-    Green onion
-    cooked noodle [optional]
-    cheese [optional]
+    90g [3/4 cup] popcorn kernel
+    2 tbsp oil or 1 tbsp oil + 1 tbsp butter
+    1 tsp salt
+    100 ml or 0.5 cup water
+    210g or 1 cup sugar
+    1 tbsp butter
+    a tray lined with baking paper
 Steps:
-1. Add 2 tbsp of gochujang onto pan.
+1. Add 2 tbsp of oil or 1 tbsp oil + 1 tbsp butter onto pan.
+2. Turn on stove and heat up (medium heat) until it starts to bubble.
+3. Once oil bubbles, add in popcorn kernel and mix it evenly.
+4. Close lid and drop heat to low. Shake pan occasionally.
+5. Once popping stops, take the popcorn out. Add 1 tsp of salt to the top.
+6. Add 210g or 1 cup of sugar onto pan. 
+7. Add in 100ml or 0.5 cup water. Shake it to even them out. Do not stir.
+8. Turn on heat (low to medium). Let the sugar bubble.
+9. once it turns even, deep amber color add in butter and turn off heat.
+10. Keep stirring until butter melted and bubbles subsided.
+11. Mix caramel onto the popcorn. Once coated, spread over baking paper quickly.
+12. Once cooled, break them apart and eat.
 
 
 # Sago Pudding

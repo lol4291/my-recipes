@@ -16,6 +16,50 @@ Snack
 
 
 To try:
+
+# churros bites
+
+Need:
+
+   ** FOR Churros**
+   
+    150 ml water
+    20g sugar
+    40g unsalted butter
+    110g all purpose flour
+    2 eggs
+    
+    ** For Chocolate*
+    
+    50g dark chocolate
+    25g sugar
+    120ml milk
+    4g corn starh
+    10ml water
+Steps:
+1. Add 150 ml water to pan. Add 20g sugar as well as 40g butter.
+2. Put pan on stove and turn on [low to medium].
+3. Keep heating until butter dissolves. Continue until mixture boils.
+4. Once butter melted and all boiled, put on low.
+5. Add flour and mix it thoroughly until combined.
+6. Once completely done, transfer dough mixture to a bowl and let it cool down 10-20 minutes
+7. Add in 1 egg into dough mixture and completely mix it.
+8. Add in another egg and completely mix it.
+9. Once done, transfer into 2 layer piping bag. Dough can instantly fry or fried the next day.
+10. Heat up oil to low-medium heat.
+11. Add in churros.
+12. Let it fry until its golden brown.
+13. Put on plate lined with paper towel.
+
+For Chocolate
+1. Add 50g of dark chocolate, 25g of sugar and 120ml of milk into pan.
+2. Put it on pan and turn to medium heat.
+3. Continuously sti until chocolate is melted.
+4. Mix 4g cornstart and 10ml water in separate bowl and add to the chocolate mixture.
+5. Continue mixing until it slightly thickens and begins to boil.
+6. Then remove it.
+
+
 # Thick Egg Curry modded
 Need:
 
